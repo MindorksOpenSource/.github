@@ -8,8 +8,9 @@ We have tried to preserve the learning resources that benefitted the community. 
 1. https://janisharali.com
 2. https://amitshekhar.me
 3. https://www.youtube.com/@janisharali
-4. https://blog.mindorks.com
-5. https://afteracademy.com
+4. https://www.youtube.com/@amitshekhar
+5. https://blog.mindorks.com
+6. https://afteracademy.com
 
 The paid services will be available for the time it is needed. 
 
